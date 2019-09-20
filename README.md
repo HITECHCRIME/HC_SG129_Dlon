@@ -66,11 +66,16 @@ sieć to dłoń
 
 toczy w układ
 warunki z moich stron
-weź za siebi
-miałem te zasady wszystkie wady
-poskładałem
+weź za siebie
 
-możesz  marzyć
+rozumiałem te zasady 
+wszystkie wady moje
+poskładałem
+mówili mi możeszmarzyć
+
+daj mi przyszłość 
+ja oddam swój grom
+toń, ale nadal możesz marzyć
 
 
 ```
