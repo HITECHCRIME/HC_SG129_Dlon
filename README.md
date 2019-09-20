@@ -51,6 +51,12 @@ z moich linii wróż
 nie mam kont, nie mam skąd 
 i po co mieć nadzieję
 
+- pająki z moich rąk
+
+wyjdź już teraz stąd
+porzucone plemię
+
+
 weź za siebie
 
 
