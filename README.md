@@ -11,7 +11,7 @@ Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine (1)
 
 **Title:**  / **Featuring:** MOTHNODE
 
-**Production:** LCS / **Lyrics:** 
+**Production:** LCS / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
