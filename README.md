@@ -48,6 +48,8 @@ gdy brakuje rąk
 znów to brzemię
 tam gdzie kurz się toczy
 
+weź za siebie
+
 
 ```
 
