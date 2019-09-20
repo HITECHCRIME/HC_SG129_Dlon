@@ -76,7 +76,8 @@ mówili mi możeszmarzyć
 daj mi przyszłość 
 ja oddam swój grom
 toń, ale nadal możesz marzyć
-
+możesz marzyć
+możesz marzyć
 
 ```
 
