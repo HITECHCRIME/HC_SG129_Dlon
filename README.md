@@ -48,7 +48,9 @@ gdy brakuje rąk
 znów to brzemię
 tam gdzie kurz się toczy
 z moich linii wróż
-nie mam kont, nie mam skąd i po co mieć nadzieję
+nie mam kont, nie mam skąd 
+i po co mieć nadzieję
+
 weź za siebie
 
 
