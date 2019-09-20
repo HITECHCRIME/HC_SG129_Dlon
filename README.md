@@ -45,6 +45,8 @@ no to blok yeah
 wyjdź już teraz stąd
 połączone plemię
 gdy brakuje rąk
+znów to brzemię
+tam gdzie kurz się toczy
 
 
 ```
