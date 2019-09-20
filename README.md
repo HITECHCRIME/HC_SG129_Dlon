@@ -55,6 +55,8 @@ i po co mieć nadzieję
 
 wyjdź już teraz stąd
 porzucone plemię
+gdy brakuje rąk
+
 
 
 weź za siebie
