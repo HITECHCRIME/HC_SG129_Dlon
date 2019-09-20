@@ -35,7 +35,7 @@ tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
 
-pająki z moich rąk yeah
+te pająki z moich rąk yeah
 sieć to dłoń
 dla tych skrytych
 tutaj nie szanujesz czasu
@@ -47,6 +47,8 @@ połączone plemię
 gdy brakuje rąk
 znów to brzemię
 tam gdzie kurz się toczy
+z moich linii wróż
+
 
 weź za siebie
 
