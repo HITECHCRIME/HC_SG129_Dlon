@@ -16,6 +16,8 @@ Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine
 ## Lyrics
 
 ```
+first part?
+
 1:20
 wyjdź już teraz stąd
 porzucone plemię
