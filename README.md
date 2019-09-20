@@ -40,6 +40,9 @@ sieć to dłoń
 dla tych skrytych
 tutaj nie szanujesz czasu
 no to blok
+no to blok yeah
+
+
 
 
 
