@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Dłoń
 
-**Listen now:** x
+**Listen now:**
 
 ## Project Data
 
