@@ -42,8 +42,9 @@ tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
 
-
-
+wyjdź już teraz stąd
+połączone plemię
+gdy brakuje rąk
 
 
 ```
