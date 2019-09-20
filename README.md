@@ -7,7 +7,7 @@
 ## Project Data
 
 Description.
-Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine (1)
+Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine
 
 **Title:** Dłoń (Test Title) / **Featuring:** MOTHNODE
 
