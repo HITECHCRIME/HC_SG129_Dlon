@@ -30,7 +30,7 @@ i po co mieć nadzieję
 
 pająki z moich rąk
 sieć to dłoń
-dla tych skrytych
+dla tych skrytych (growl)
 tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
@@ -48,8 +48,7 @@ gdy brakuje rąk
 znów to brzemię
 tam gdzie kurz się toczy
 z moich linii wróż
-
-
+nie mam kont, nie mam skąd i po co mieć nadzieję
 weź za siebie
 
 
