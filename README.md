@@ -16,6 +16,22 @@ Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine (1)
 ## Lyrics
 
 ```
+1:20
+wyjdź już teraz stąd
+porzucone plemię
+gdy brakuje rąk (do  gry)
+zdmuchnie brzemię
+tam gdzie kurz się toczy
+z moich linii wróż
+nie mam kont, nie mam skąd
+i po co mieć nadzieję
+
+pająki z moich rąk
+sieć to dłoń
+dla tych skrytych
+tutaj nie szanujesz czasu
+no to blok
+no to blok yeah
 
 
 ```
