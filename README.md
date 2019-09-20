@@ -35,6 +35,10 @@ tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
 
+pająki z moich rąk yeah
+sieć to dłoń
+
+
 
 ```
 
