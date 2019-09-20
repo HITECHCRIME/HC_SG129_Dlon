@@ -35,7 +35,7 @@ tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
 
-te pająki z moich rąk yeah
+dwa pająki z moich rąk yeah
 sieć to dłoń
 dla tych skrytych
 tutaj nie szanujesz czasu
@@ -56,9 +56,17 @@ i po co mieć nadzieję
 wyjdź już teraz stąd
 porzucone plemię
 gdy brakuje rąk
+znów to brzemię
+- gdzie tu się toczy
+z moich linii wróż
+nie mam kont, nie mam skąd
+i po co mieć nadzieję
+pająki z moich rąk
+sieć to dłoń
 
 
-
+toczy w układ
+warunki z moich stron
 weź za siebie
 
 
