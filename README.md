@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Description.
+Polish song.
 Beat (FREE) Drake Type Beat x Freestyle Type Beat - Nicotine
 
 **Title:** Dłoń (Test Title) / **Featuring:** MOTHNODE
