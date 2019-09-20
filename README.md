@@ -37,6 +37,7 @@ no to blok yeah
 
 pająki z moich rąk yeah
 sieć to dłoń
+dla tych skrytych
 
 
 
