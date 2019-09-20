@@ -28,9 +28,9 @@ z moich linii wróż
 nie mam kont, nie mam skąd
 i po co mieć nadzieję
 
-pająki z moich rąk
-sieć to dłoń
-dla tych skrytych (growl)
+pająki z moich rąk (z moich rąk)
+sieć to dłoń (growl)
+dla tych skrytych (growl)skrytyyyyyych
 tutaj nie szanujesz czasu
 no to blok
 no to blok yeah
