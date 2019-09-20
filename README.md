@@ -64,10 +64,13 @@ i po co mieć nadzieję
 pająki z moich rąk
 sieć to dłoń
 
-
 toczy w układ
 warunki z moich stron
-weź za siebie
+weź za siebi
+miałem te zasady wszystkie wady
+poskładałem
+
+możesz  marzyć
 
 
 ```
