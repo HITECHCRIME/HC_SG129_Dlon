@@ -71,14 +71,18 @@ weź za siebie
 rozumiałem te zasady 
 wszystkie wady moje
 poskładałem
-mówili mi możeszmarzyć
+mówili mi możesz marzyć
+
+wycisz teraz ton
+połączenie odrzucone
+różnorakie konsekwencje
 
 daj mi przyszłość 
 oddam ci swój grom, toń
 ale nadal możesz marzyć
 możesz marzyć
 możesz marzyć
-ale gdy nadejdzie ten dzień
+ale gdy nadejdzie stan, ten dzień
 kiedy weźmiesz w garść
 pizgniesz pięścią w blat
 powiesz dość zbyt długo tu siedziałem
