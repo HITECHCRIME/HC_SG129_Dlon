@@ -74,15 +74,16 @@ poskładałem
 mówili mi możeszmarzyć
 
 daj mi przyszłość 
-ja oddam swój grom
-toń, ale nadal możesz marzyć
+ja oddam swój grom, toń
+ale nadal możesz marzyć
 możesz marzyć
 możesz marzyć
 ale niech nadejdzie ten dzień
-kiedy weźmiesz się w garść
+kiedy weźmiesz w garść
 pizgniesz pięścią w blat
 powiesz dość zbyt długo tu siedziałem
 w nocy aż się zapomniałem 
+czeka na mnie świat
 
 ```
 
